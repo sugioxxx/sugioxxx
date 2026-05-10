@@ -1,2 +1,33 @@
-<img align="center" width="100" height="100" src="https://64.media.tumblr.com/a7615491c79cac26d15c6732629c8e9e/b18aff3ce9323114-a9/s100x200/d49528727ac987f91f7287aa5fceef33cfce1735.gifv">
-</a>
+<p align="center">
+  <img width="850" height="500" src="https://i.pinimg.com/1200x/d5/ea/9c/d5ea9cf644d2599b761e504ae4043f78.jpg">
+</p>
+
+</div>
+<p align="center">
+​​🇨​​🇷:​ @​🇨​​🇭​​🇪​​🇳​​🇬​​🇴​​🇳​​🇬​​🇿​​🇮​123
+</div>
+
+<br>
+<br>
+
+</div>
+<p align="center">
+​"ᴡᴇʟʟ, ɪ'ʟʟ ɴᴇᴇᴅ ᴀ ɢᴏᴏᴅ ʀɪɢʜᴛ-ʜᴀɴᴅ ᴍᴀɴ."
+  <br>
+"ꜱᴇʀɢᴇᴀɴᴛ ᴛꜱᴜᴋɪꜱʜɪᴍᴀ..."
+  <br>
+"ɪ ɴᴇᴇᴅ ʏᴏᴜʀ ʜᴇʟᴘ."
+</div>
+
+<br>
+<br>
+<br>
+
+
+<p align="center">
+    <img width="70" height="50" src="https://en.pronouns.page/flags/Aroace.png" hspace="10" >
+   <br>
+    <img width="70" height="50" src="https://cdn.pronouns.page/images/01J9CGZNVP0TFGND08XN852BYD-flag.png" hspace="10" > 
+  <br>
+    <img width="70" height="50" src="https://en.pronouns.page/flags/Agender.png" hspace="10" >
+</p>
