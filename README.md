@@ -1,11 +1,12 @@
-<p align="center">
-  <img width="250" height="200" src="https://i.postimg.cc/n9QxhvG6/ogata-smug.png">
-</p>
-
 </div>
 <p align="center">
 ​​ᴄʀ: @ᴄʜᴇɴɢᴏɴɢᴢɪ
 </div>
+
+<p align="center">
+  <img width="250" height="200" src="https://i.postimg.cc/n9QxhvG6/ogata-smug.png">
+</p>
+
 
 <br>
 <br>
