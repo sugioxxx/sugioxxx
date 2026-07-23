@@ -1,6 +1,5 @@
 <p align="center">
-  <img width="250" height="200" src="https://instagram.fbhx6-1.fna.fbcdn.net/v/t51.82787-15/660598146_17920430157322939_131940901176929895_n.webp?_nc_cat=100&ig_cache_key=Mzg3MDcyNDQ2MTc1MDgxNjM1Nw%3D%3D.3-ccb7-5&ccb=7-5&_nc_sid=58cdad&efg=eyJ2ZW5jb2RlX3RhZyI6IkZFRUQueHBpZHMuMTAxMi5zZHIucmVndWxhcl9waG90by5DMyJ9&_nc_ohc=am9K6RnnLVgQ7kNvwEgoTee&_nc_oc=Adrw4diGT9QaPM6spaspcJR2Fg6EGKE9IWJhxRjRYb1ngvPa8A7OvLaypd9ZnANpkyohRT2rHAYFiTP6I8ltJgdM&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=instagram.fbhx6-1.fna&_nc_gid=I8koetGMD0jx7_7vgZUdJg&_nc_ss=7a22e&oh=00_AQBYyQdkUxrI0yrcs3jhMqFWiUJlWRUdafdayPvezqtI4Q&oe=6A687F4F
-">
+  <img width="250" height="200" src="https://i.postimg.cc/FFyWzqcx/image-2026-07-23-235115353.png">
 </p>
 
 
@@ -10,7 +9,7 @@
 </div>
 
 <p align="center">
-  <img width="250" height="200" src="https://i.postimg.cc/n9QxhvG6/ogata-smug.png">
+  <img width="250" height="200" src="https://i.postimg.cc/zvxGp7bX/ogata-smug.png">
 </p>
 
 
