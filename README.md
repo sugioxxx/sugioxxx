@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="270" height="200" src="https://prowlingleather.neocities.org/ogata/ogata_smug.png">
+  <img width="250" height="200" src="https://prowlingleather.neocities.org/ogata/ogata_smug.png">
 </p>
 
 </div>
