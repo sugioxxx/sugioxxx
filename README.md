@@ -20,8 +20,11 @@
 <p align="center">
 ​Hello! I am Sug [or whatever nickname you give me]
   <br>
-
 </div>
+<p align="center">
+​[20 | ᴜᴋ | ᴅᴇᴍɪʀᴏꜱᴇ | ɪɴꜰᴘ-ᴛ | ᴀʀɪᴇꜱ]
+</div>
+
 
 <br>
 <br>
