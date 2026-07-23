@@ -9,7 +9,7 @@
 </div>
 
 <p align="center">
-  <img width="150" height="100" src="https://i.postimg.cc/zvxGp7bX/ogata-smug.png">
+  <img width="150" height="130" src="https://i.postimg.cc/zvxGp7bX/ogata-smug.png">
 </p>
 
 
