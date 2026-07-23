@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="250" height="200" src="https://i.postimg.cc/zvxGp7bX/ogata-smug.png">
+  <img width="250" height="200" src="https://i.postimg.cc/n9QxhvG6/ogata-smug.png">
 </p>
 
 </div>
