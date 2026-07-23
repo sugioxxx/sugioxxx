@@ -9,7 +9,7 @@
 </div>
 
 <p align="center">
-  <img width="250" height="200" src="https://i.postimg.cc/zvxGp7bX/ogata-smug.png">
+  <img width="150" height="100" src="https://i.postimg.cc/zvxGp7bX/ogata-smug.png">
 </p>
 
 
@@ -18,7 +18,7 @@
 
 </div>
 <p align="center">
-​Hello! I am Sug [or whatever nickname you give me]
+​​ʜᴇʟʟᴏ! ɪ ᴀᴍ ꜱᴜɢ [ᴏʀ ᴡʜᴀᴛᴇᴠᴇʀ ɴɪᴄᴋɴᴀᴍᴇ ʏᴏᴜ ɢɪᴠᴇ ᴍᴇ]
   <br>
 </div>
 <p align="center">
